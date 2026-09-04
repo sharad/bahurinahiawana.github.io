@@ -20,6 +20,8 @@
   + [अप्रैल २०२४ से दिसंबर २०२५](2025/BNA-April-2024-to-December-2025.pdf)
 - २०२५
   + [अप्रैल २०२४ से दिसंबर २०२५](2025/BNA-April-2024-to-December-2025.pdf)
+- २०२६
+  + [दिसंबर २०२५ से जनवरी २०२६](2026/BNA-December-2025-to-January-2026.pdf)
 
 ## Alias:
 - [www.bahurinahiawana.com](http://www.bahurinahiawana.com)
